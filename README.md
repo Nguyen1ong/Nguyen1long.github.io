@@ -15,4 +15,4 @@
 # + Gmail: 21520334@gm.uit.edu.vn
 # + Facebook: facebook.com/sea261103
 # //The first time for this CV. In the future, I will make it more beatiful than this. Hope to see you again.
-# Thanks for read all. Have a nice day!!!!
+# Thanks for reading all. Have a nice day!!!!
